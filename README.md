@@ -1,6 +1,6 @@
 ```
 First Class FREE!
-🎓 Dive into the Future with KINGSTON CODING SCHOOL 🎓
+🎓 Dive into the Future with SUGAR BEACH CODING SCHOOL 🎓
 Are you passionate about technology? Want to transform your curiosity into expertise?
 Sugar Beach Coding School offers a gateway to success for learners of ALL ages! 🚀
 ✅ Learn PYTHON: The language of tomorrow, today! 
